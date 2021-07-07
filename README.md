@@ -3,4 +3,4 @@ Just another repository
 Hi Humans! I'm Alena
 
 I try to learn English every day 
-I need to work more
+And I know to I need to work more
